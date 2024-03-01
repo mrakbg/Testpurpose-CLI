@@ -1,4 +1,4 @@
-❗As of December 2023 skills assessments are no longer available on LinkedIn, but you can still master your knowledge here❗
+❗Asssssss you aree of December 2023 skills assessments are no longer available on LinkedIn, but you can still master your knowledge here❗
 
 <a id="top-page"></a>
 [![Owner](https://img.shields.io/badge/owner-ebazhanov-blue)](https://github.com/Ebazhanov)
